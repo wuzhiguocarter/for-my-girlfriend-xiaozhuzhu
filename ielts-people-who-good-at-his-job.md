@@ -4,16 +4,16 @@
 ### who this person is
 ### what his or her job is
 ### how he or she likes the job and explain why this person is good at the job.
-I want to show you my teacher. when I study in university, my teacher who is Lihua Lin. he is good at his job. His job is a teacher who teach us about developmental and educational psychology. she likes help People and sharing his knowledges with his students, so we can  get lots of privious knowledges and experiences. she is good at psychological therapy and help People who are in need, so he have enough experiences for his teaching. every time he teach us lesson, he could combine theory with experiences to make us understand the theory application. so I like her very much and she is a good teacher for us.
+I want to talk about my teacher who work for my university as a teacher and psychologist. His name is Lihua Wu.  He will work for the hosptical in his spare time to help persons who have mental problem. His lessons mainly contain developmental and educational psychology. he works very hard and always shares his psychological therapy skills with us. he spends most of his time on helping his patients and encouraging us to join in practice to solve practical problems and deeply lean psychological knowledges. we can feel his passon for his career, because we always can be encourage by his enthusiastic and learn lots of knowledges beyong the book's contents. He has gotten lots of prizes for his teaching and therapy career. most of people around him admite his ability. 
 
 ## what is your favourite movie?
-my fevourite movie is "detective pikachu” that was publiced in china recently. this movie is very interesting because it is combined real persons with cartoons by technology. the pikachu is very cute, small, kind and interesting. I love it so much and I bought a stuffed toy of pikachu after finishing to watch this movie.
+my fevourite movie is "detective pikachu” that has been published in china recently. this movie is very interesting because the movie combined real persons with cartoons by technology. the pikachu is so cute, small, kind and interesting so that I immediatly bought a stuffed toy of pikachu after finishing this movie.
 
 ## do your friends likes this movie?
-of course. they like this movie as well because i was informed this movie by their friends' circle. they admired this movie as well and gave high evaluation.
+Of course. They like this movie as well because I was informed this movie by their friends' circle. Because they admired this movie so much, I go to the ciname and enjoy the movie. 
 
 ## what kinds of movies do you think young people like?
-in my opinion, young people may be interested fiction movie because these movies are exciting and intersting, and can stimulate thier imagination and expand thier horizons. 
+In my opinion, young people may be interested in fiction movies because these movies are exciting and intersting, and can stimulate their imagination and expand their horizons. 
 
 ## do you want to be a movie star?
-of cours, I want to be a movie star. the movie stars can earn lots of money and get the high social status in china. they can also have high quality of life as well. 
+Of course, I want to be a movie star. The movie stars can earn lots of money and get the high social status in china. They can also have high quality of life as well. 
